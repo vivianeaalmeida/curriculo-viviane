@@ -1,2 +1,3 @@
-Currículo Web - Viviane Andrade de Almeida
-Maio - 2022
+Currículo Web - Viviane Andrade de Almeida.
+
+Atualizado em Maio de 2022
